@@ -1,4 +1,4 @@
-# aj-car-polish.github.io
+# ajcarpolishandinterior.github.io
 AJ Car Polish &amp; Interior Cleaning
 
 ## Services:
