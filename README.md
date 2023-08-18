@@ -12,5 +12,6 @@ Car window cleaning
 ### Owner: Aniket Javalge AJ
 #### Instagram: https://www.instagram.com/aj____car____polish/ (AJ car polish & interior)
 #### Facebook: https://www.facebook.com/profile.php?id=100009316888632 (Aniket Javlge AJ)
+#### Facebook Page: https://www.facebook.com/profile.php?id=61550253483808 (AJ car polish & interior | Kolhapur)
 #### Address: https://goo.gl/maps/y7HyhHSDAVqRtd7h9 (Kandalgaon, Kolhapur)
 #### Mail To: aniketjavalge9@gmail.com
